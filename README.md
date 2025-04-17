@@ -1,4 +1,4 @@
-# Pressable-Coupons
+# Pressable-Coupon
 ## Pressable Coupon Codes 2025| Get Upto 35% off Discount &amp; Deals 
 
 Searching for a Pressable coupon code for 2025 to cut costs on managed WordPress hosting? You’re in the perfect spot! We’ve gathered the top deals to help you get premium WordPress hosting at a lower price.
@@ -15,6 +15,12 @@ Let’s help you score some savings!
 
 ## 🚀BUNDLE50
 [Get 50% off when bundling Pressable hosting with other services like Jetpack or WooCommerce extensions for WordPress eCommerce.](https://www.bytegain.com/Recommended/pressable/)
+
+## 🚀FREEFIRST
+[Enjoy the first month free on any plan, allowing you to test Pressable’s features risk-free.](https://www.bytegain.com/Recommended/pressable/)
+
+## 🚀AGENCY25
+[Agencies and businesses can get 25% off for the first six months on select plans, which is great for those managing multiple websites.](https://www.bytegain.com/Recommended/pressable/)
 
 ### To Grab More Latest deals visit 🔥👉[Pressable Coupon Code](https://www.affiliatebooster.com/pressable-coupon/) 
 ## How to Use a Pressable Coupon Code
